@@ -1,2 +1,0 @@
-# Kmontgomery-Website
-kentmontgomery.com
